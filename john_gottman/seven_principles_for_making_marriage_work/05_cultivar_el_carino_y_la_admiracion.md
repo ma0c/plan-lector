@@ -1,0 +1,1 @@
+Cuando la relación está en crisis, una manera de salvarla es recordar el pasado e intentar revivir los lindos momentos del pasado donde el cariño y el deseo por el otro eran los motivantes para tener la relación 
